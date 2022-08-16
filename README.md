@@ -62,3 +62,15 @@ You can click the Preview link to take a look at your changes.
 - github：
 - https://github.com/liangchaoxi liangchaox
 - https://github.com/bandaoyu/bandaoyu
+
+
+- 我的同伙
+
+- https://www.zhihu.com/people/he-wei-long-wan-hifi/answers
+- 贺伟龙
+- lonely869
+- 贺伟龙玩HiFi
+- 18971173506
+- 286066817
+
+- 2022-08-16 今天又舔一次同伙屁股，小号点赞大号，舔库克屁股一次
