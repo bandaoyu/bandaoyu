@@ -46,6 +46,8 @@ You can click the Preview link to take a look at your changes.
 - 微博：
 - https://weibo.com/u/1275900352  乐观的半岛鱼哥哥
 
+- https://weibo.com/u/1686252603 半岛鱼哥哥
+
 
 - 淘宝店：
 - https://bandaoyu.taobao.com/    半岛鱼数码
