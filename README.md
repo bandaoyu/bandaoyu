@@ -14,7 +14,7 @@ You can click the Preview link to take a look at your changes.
 - 手机号：15881077392
 - QQ：     260079139
 - 教育经历：
--                  青岛大学        光信息科学与技术 2006-2010
+-                  青岛大学        光信息科学与技术 2007-2010
 -                  电子科技大学  2010-2013
 - 工作经历    
 -                  粗粮水军隶属雷不群卢亲卫队
@@ -45,7 +45,6 @@ You can click the Preview link to take a look at your changes.
 - http://blog.sina.com.cn/liangchaoxi
 - 微博：
 - https://weibo.com/u/1275900352  乐观的半岛鱼哥哥
-
 - https://weibo.com/u/1686252603 半岛鱼哥哥
 
 
