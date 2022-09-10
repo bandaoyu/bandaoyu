@@ -42,6 +42,7 @@ You can click the Preview link to take a look at your changes.
 - https://www.zhihu.com/people/he-niu-nai-de-niu-zi-30 喝牛奶的牛仔
 - https://www.zhihu.com/people/p2p2008 p2p2008
 - https://www.zhihu.com/people/p2p2007 p2p2007
+- https://www.zhihu.com/people/zhou-xi-56 针长輪断
 
 - 新浪博客：
 - http://blog.sina.com.cn/liangchaoxi
